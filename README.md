@@ -1,7 +1,8 @@
 ### Jacob Yates, PhD
-**Chief Systems Engineer | Principal Investigator**
+**Founder and Chief Scientist | Mariner Space Institute**
+**Principal Investigator, ARMOR Initiative**
 
-I am an aerospace researcher and systems engineer with over 30 years of experience in the industry. My work bridges the gap between planetary geology and operational risk assessment for orbital regimes and future lunar architectures.
+I am an aerospace researcher and systems engineer with over 30 years of experience in the industry. My work bridges the gap between planetary geology and operational risk assessment for orbital regimes and future lunar architectures. Find or tag our institute's research via @marinerspaceinstitute / #marinerspaceinstitute.
 
 ---
 
